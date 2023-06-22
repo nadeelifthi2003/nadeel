@@ -1,2 +1,2 @@
 # nadeel
-living the movement
+mind set everything
